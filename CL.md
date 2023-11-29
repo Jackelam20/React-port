@@ -1,1 +1,0 @@
-As a self motivated learner I have been teaching myself computer science for the past 2 years. I took it as a challenge to understand some of the difficult concepts that 
